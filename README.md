@@ -1,0 +1,9 @@
+- 👋 Hi, I’m @D34ULT-2
+- 👀 I’m interested in cyber hacking
+- 🌱 I’m currently learning cyber hacking
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: ...
+
+someone teach me how to start hacking .
